@@ -11,7 +11,7 @@
 
 - alternative link of the roblox script website [extallium hub (1)](https://extallium.cc)
 
-- discord server: [extallium discord:](https://discord.gg/G3WRRYxQSW)
+- discord server: [extallium discord:] (https://discord.gg/m9kyt9KeUX)
 
 - projects available on my discord server [https://discord.gg/G3WRRYxQSW](https://discord.gg/G3WRRYxQSW)
 
